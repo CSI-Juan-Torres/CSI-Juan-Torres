@@ -7,4 +7,5 @@
 - Zanahorias
 - Apio
 - Pimientos
-- 
+- Mayonesa
+- Adobo
