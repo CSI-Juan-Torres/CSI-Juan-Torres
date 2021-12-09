@@ -17,6 +17,7 @@
 - 1/2 Pimiento verde
 - 1 taza de Mayonesa
 - Adobo
+- Manzanas cortadas (opcional)
 
 ### Procedimientos:
 1. Lavar las papas
@@ -25,3 +26,8 @@
 4. Retirar el agua hervido
 5. Poner las papas en un 'bowl', y despues encorporar la cebolla, pimiento verde, adobo, los huevos y la mayonesa
 6. ¡¡¡¡Buen provecho!!!!
+
+## Video:
+### https://www.youtube.com/watch?v=_G0TdMzJDf8
+##### Referencia:
+##### https://comidaboricua.info/ensaladas/papa/
